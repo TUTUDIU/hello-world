@@ -1,2 +1,6 @@
 # hello-world
 My Very first one!
+
+MY NAME IS TUTU. i AM VERY CUTE AND SMART.
+EH~~ KIND OF.
+ANYWAY.YOU WILL KNOW
